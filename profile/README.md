@@ -1,5 +1,10 @@
 ## Hi there 👋
 
+Our team with more than fifteen years of experience in consulting maps the behavioral skills of professionals, and offers organizational diagnosis and development, applying targeted solutions as the complete support of each business and individual.
+
+We found the right person and your company needs to keep growing.
+
+
 <!--
 
 **Here are some ideas to get you started:**
